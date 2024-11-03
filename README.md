@@ -1,5 +1,8 @@
 character-consistency person icon in mid journey
 
+-cw 100 is character consistencyy to have  same faces throughout the movie
+
+
 
 
 https://www.youtube.com/watch?v=Kf6Jdekp6e8
